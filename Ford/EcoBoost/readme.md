@@ -1,0 +1,1 @@
+- [JUNK Ford Ecosport 1.0L 3-Cylinder Ecoboost Teardown. How Do You Avoid This Failure?](https://youtu.be/0yx1-50iqnA)
